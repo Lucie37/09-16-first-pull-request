@@ -9,8 +9,8 @@
 
 ## Add Your Name to the List below!
 - Lucie Morillon
--Christina Okoduwa
--JOANNA FRENCH
+- Christina Okoduwa
+- JOANNA FRENCH
 - Will Massey
 - Christina Okoduwa
 - simwbwlp
